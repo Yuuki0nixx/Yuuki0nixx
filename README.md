@@ -103,12 +103,13 @@
 
 (𝐩.𝐬 𝐈 𝐚𝐦 𝐧𝐨𝐭 𝐭𝐡𝐞 𝐭𝐲𝐩𝐞 𝐨𝐟 𝐩𝐞𝐫𝐬𝐨𝐧 𝐭𝐨 𝐛𝐥𝐨𝐜𝐤/𝐡𝐢𝐝𝐞 𝐩𝐞𝐨𝐩𝐥𝐞 𝐞𝐚𝐬𝐢𝐥𝐲, 𝐛𝐮𝐭 𝐢 𝐖𝐎𝐍𝐓 𝐡𝐞𝐬𝐢𝐬𝐭𝐚𝐭𝐞 𝐢𝐟 𝐲𝐨𝐮 𝐦𝐚𝐤𝐞𝐬 𝐦𝐞 𝐮𝐧𝐜𝐨𝐦𝐟𝐨𝐫𝐭𝐚𝐛𝐥𝐞.)
 
-![1000022136](https://github.com/user-attachments/assets/77e13aea-61e6-4572-a3fb-63da7b812962)
+![1000022141](https://github.com/user-attachments/assets/e4bba73d-12ce-4a33-a644-c70decf033d5)
 
 
 ☽ {𝐓𝐇𝐀𝐍𝐊𝐒 𝐅𝐎𝐑 𝐑𝐄𝐀𝐃𝐈𝐍𝐆 ♡} ☾
 
-![1000022134](https://github.com/user-attachments/assets/c0b5ee94-6d94-429d-92cd-72ab9aaeab98)
+![1000022142](https://github.com/user-attachments/assets/4c3a1297-3f71-42eb-a9a6-14e5f864501d)
+
 
 
 
