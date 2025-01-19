@@ -1,15 +1,14 @@
-![1000022126](https://github.com/user-attachments/assets/3d065244-51f4-4257-8816-576243dabf8f)
+![1000022128](https://github.com/user-attachments/assets/685b5e60-e551-4b37-bb1f-4fa8dea325f5)
 
 
 {𝐈𝐅 𝐘𝐎𝐔 𝐇𝐀𝐕𝐄 𝐓𝐈𝐌𝐄 𝐏𝐋𝐄𝐀𝐒𝐄 𝐑𝐄𝐀𝐃 𝐁𝐄𝐅𝐎𝐑𝐄 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓𝐈𝐍𝐆, 𝐓𝐘 ♥︎}
 
-![1000022128](https://github.com/user-attachments/assets/f37b597e-5e18-4d15-8853-2f8b85a3f377)
+![1000022119](https://github.com/user-attachments/assets/bade3411-066f-4ccc-905e-123d8ddb8f93)
 
 
 "𝐎𝐡, 𝐭𝐨 𝐭𝐡𝐢𝐧𝐤 𝐭𝐡𝐚𝐭 𝐭𝐡𝐢𝐬 𝐬𝐦𝐚𝐥𝐥 𝐬𝐞𝐞𝐝 𝐰𝐢𝐥𝐥 𝐠𝐫𝐨𝐰 𝐢𝐧𝐭𝐨 𝐚 𝐝𝐞𝐥𝐢𝐠𝐡𝐭𝐟𝐮𝐥 𝐟𝐫𝐮𝐢𝐭..."
 
-![1000022119](https://github.com/user-attachments/assets/a5e6240e-b6ba-4d2d-90c5-a6783b31a5d0)
-
+![1000022126](https://github.com/user-attachments/assets/948a4ae8-9cbe-4044-a5a1-8149dd911042)
 
 #❀ : 𝙸𝙽𝙵𝙹 𝟺𝚠𝟻 :
 
@@ -109,7 +108,9 @@
 
 ☽ {𝐓𝐇𝐀𝐍𝐊𝐒 𝐅𝐎𝐑 𝐑𝐄𝐀𝐃𝐈𝐍𝐆 ♡} ☾
 
-![1000022130](https://github.com/user-attachments/assets/eb0dfb0a-a0a6-4cec-a9ae-28a177c761d6)
+![1000022134](https://github.com/user-attachments/assets/c0b5ee94-6d94-429d-92cd-72ab9aaeab98)
+
+
 
 
 
