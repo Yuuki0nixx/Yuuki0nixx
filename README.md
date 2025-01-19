@@ -1,4 +1,5 @@
-![1000022120](https://github.com/user-attachments/assets/301139af-e865-48f9-aaba-5c47091f6c65)
+![1000022126](https://github.com/user-attachments/assets/3d065244-51f4-4257-8816-576243dabf8f)
+
 
 {𝐈𝐅 𝐘𝐎𝐔 𝐇𝐀𝐕𝐄 𝐓𝐈𝐌𝐄 𝐏𝐋𝐄𝐀𝐒𝐄 𝐑𝐄𝐀𝐃 𝐁𝐄𝐅𝐎𝐑𝐄 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓𝐈𝐍𝐆, 𝐓𝐘 ♥︎}
 
@@ -108,7 +109,8 @@
 
 ☽ {𝐓𝐇𝐀𝐍𝐊𝐒 𝐅𝐎𝐑 𝐑𝐄𝐀𝐃𝐈𝐍𝐆 ♡} ☾
 
-![1000022126](https://github.com/user-attachments/assets/91253d79-f463-45ee-b5f8-c0156acc18ac)
+![1000022130](https://github.com/user-attachments/assets/eb0dfb0a-a0a6-4cec-a9ae-28a177c761d6)
+
 
 
 
