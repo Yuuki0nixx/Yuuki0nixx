@@ -88,7 +88,7 @@
 
 #✦ : 𝙽 {𝙷𝙴𝙰𝚅𝚈 𝙺𝙸𝙽} (𝙿𝙺𝙼𝙽) 
 
-#✧ : X {HEAVY KIN} (R1999) 
+#✧ : 𝚇 {𝙷𝙴𝙰𝚅𝚈 𝙺𝙸𝙽} (𝚁𝟷𝟿𝟿𝟿) 
 
 Theres actually more but theyre just unlisted, or i do not kin them anymore
 
