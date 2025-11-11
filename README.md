@@ -31,4 +31,4 @@
 
 • I sometimes act differently towards different people and friends. 
 
-• Idgaf about ships, i am indifferent towards most of them, unless its problematic or considered proship/darkship.
+• Idgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship.
