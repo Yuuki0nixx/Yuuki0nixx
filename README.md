@@ -35,4 +35,4 @@
 
 • 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling.
 
-• 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. 
+• 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. For other socials (tiktok, insta, etc) please ask me for it directly, i don't like giving some of my socials away unless asked for it. 
