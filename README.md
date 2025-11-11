@@ -13,6 +13,8 @@
 • 𝐂+h always okay even if not stated! (unless i am on dniuf/dniuc/dniuid) i have heavy cudcomf, and i'll always love some company. I don't talk often when sitting w someone, but idm getting whisps or if i feel like it i might start a convo. Will do the shaking head PT emote if i need to leave. 
 
 • 𝐒emi-verbal but will try my best to match your energy. 
+<img width="1227" height="186" alt="1000077737" src="https://github.com/user-attachments/assets/5c90c313-cb1c-4362-bbc9-ca9f29406556" />
+
 
 ### ☾ 𝐏T 𝐒t𝐚t𝐮s
 • 🌙 𝐀way = Online or Semi-AFK, Public chat on, Responsive, fast-medium replies. 
