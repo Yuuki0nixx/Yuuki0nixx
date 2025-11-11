@@ -33,4 +33,6 @@
 
 • 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship.
 
-• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling
+• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling.
+
+• 𝐖ant to contact me? add me in discord i am `@viinixxs`, My dms are always open, but expect late replies. 
