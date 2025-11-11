@@ -19,3 +19,15 @@
 
 • ⛔ 𝐁usy = AFK or Offtab, public chat off, Mostly unresponsive, w2i, slow & short replies. 
 
+### ✘ Uhh other stuffs
+
+• -12 and +18 Int with care/caution
+
+• I tend to take small hiatus without telling due to school stuffs. 
+
+• Idm kin doubles, feel free to int, i dont bite ^^.
+
+• I forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
+
+• I sometimes act differently towards different people and friends. 
+
