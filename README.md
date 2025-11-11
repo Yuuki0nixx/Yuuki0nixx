@@ -23,12 +23,14 @@
 
 • -12 and +18 Int with care/caution
 
-• I tend to take small hiatus without telling due to school stuffs. 
+• 𝐈 tend to take small hiatus without telling due to school stuffs. 
 
-• Idm kin doubles, feel free to int, i dont bite ^^.
+• 𝐈dm kin doubles, feel free to int, i dont bite ^^.
 
-• I forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
+• 𝐈 forget people often, if ur one of my friends whom ive lost contact with, feel free to remind me of who you are, unless we ended on bad terms then i prolly won't talk to you. 
 
-• I sometimes act differently towards different people and friends. 
+• 𝐈 sometimes act differently towards different people and friends. 
 
-• Idgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship.
+• 𝐈dgaf about ships, i am indifferent towards most of them, though i do NOT tolerate problematic ships or ships considered as proship/darkship.
+
+• 𝐈 make insults as a joke towards friends sometimes, please feel free to tell me if i ever said or done anything that hurts your feeling
