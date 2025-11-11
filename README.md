@@ -13,4 +13,8 @@
 
 • 𝐒emi-verbal but will try my best to match your energy. 
 
+### ☾ 𝐏T 𝐒t𝐚t𝐮s
+• 🌙 𝐀way = Online or Semi-AFK, Public chat on, Responsive, fast-medium replies. 
+
+• ⛔ 𝐁usy = AFK or Offtab, public chat off, Mostly unresponsive, w2i, slow & short replies. 
 
